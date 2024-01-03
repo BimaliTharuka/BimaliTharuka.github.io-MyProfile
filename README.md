@@ -1,1 +1,1 @@
-# BimaliTharuka.github.io-MyProfile
+# BTharuka.github.io-MyProfile
